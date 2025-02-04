@@ -1,6 +1,5 @@
 Receita de Tortilla Española
 
-
 Ingredientes
 - 5 ovos
 - 2 patacas medianas
